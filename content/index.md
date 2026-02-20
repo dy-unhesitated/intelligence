@@ -1,7 +1,7 @@
 ---
 title: 🏛️ The Intelligence Hub
 ---
-# Welcome to the Synthesis
+# Does it updte???
 *A curated library for world-development and high-leverage consultancy frameworks.*
 
 ---
