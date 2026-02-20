@@ -5,6 +5,7 @@ title: 🏛️ The Intelligence Hub
 *A curated library for world-development and high-leverage consultancy frameworks.*
 
 ---
+<div class="substack-post-embed"><p lang="en">Wanneer de Golf Zich Aandient by Dylano M</p><p>Over twijfels, delen en jezelf durven zijn</p><a data-post-link href="https://flowenfinesse.substack.com/p/wanneer-de-golf-zich-aandient">Read on Substack</a></div><script async src="https://substack.com/embedjs/embed.js" charset="utf-8"></script>
 
 ## 🗺️ Maps of Content (MOCs)
 > [!abstract] Navigation
