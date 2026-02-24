@@ -1,0 +1,6 @@
+- venice oligarchy rule trough trade routes
+- influence deminishes in mediterean thus reposition to the atlantic 
+- sponsor hhouse of orange to transport state model into new area
+- bank of england founded by orange
+- large share holder in voc and wic
+- 
