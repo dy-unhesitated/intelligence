@@ -1,0 +1,1 @@
+where generosity forms the thread holding it together. By giving we not only enrich another but also the greater whole in which we breath and move. Solidarity and mutualism makes a society pulsate like an organism, stronger and more valuable then the sum of the parts.

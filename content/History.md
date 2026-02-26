@@ -3,22 +3,20 @@
 ttrpg lvls learn skills, narrative buildinng, carefully bearing the spark of sophia
 
 ***
-- .[[Trade routs and the history of exchange]]
-	- [[The middle east]]
-	- [[Silk road]]
-	- [[The Caribbean]]
-	- [[Oranje Nassau]]
 - [[Cults and Culture]]
 	- [[The City States of Greece]]
+	- [[Venice and the council of ten]]
 	- [[The Vatican and the catholic alliance]]
 		- [[The ends justifying the means]], [[Machiavelli]]
 		- [[The global org of the jesuit missionaries]]
 		- [[Luther, calvin and anabaptist]]
 			- [[Marchant syndicates of germany]]
+			- [[Birth of the dutch and english trade companies]]
 	- [[Martyr Heretic Archetype]]
 	- [[Occult Europe and the emergence of New Age]]
 	- [[Frankestein, Silon Vally and the techno mysteries]]
 		- [[Transhumanism and digital imortaility]]
+		- [[VC Capital, Blackrock, JP Morgan]]
 
 
 

@@ -1,0 +1,1 @@
+**Attentiveness:** alert and poised to respond with precision. To be "wired in" yet detached, rising above the immediate to maintain a bird’s-eye view. We prioritize our focus with sensitivity, remaining undistracted and ever-returning to a state of remembrance.

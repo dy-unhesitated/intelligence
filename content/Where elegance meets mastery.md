@@ -1,0 +1,1 @@
+Creativity and strategical insight lead to solutions outside of the already established way of doing. While refinement and precision harmonise function and beauty. What is left is pure, powerful and effective.

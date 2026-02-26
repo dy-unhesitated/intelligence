@@ -1,0 +1,1 @@
+rooted in presence and integrity. Trust in a higher power en wisdom as the foundation of action. With humility and responsibility as protectors of the inner flame in the striving to do good.

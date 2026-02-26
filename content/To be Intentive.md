@@ -1,0 +1,1 @@
+**Intentiveness:** Purposeful and deeply rooted, refusing to be swayed by comfort or red herrings. To forge a path even when the herd deviates. We do not force ourselves upon the world; we master the art of positioning and timing. With patience, we allow the environment to work in our favor, remaining steadfast in our resolve.
